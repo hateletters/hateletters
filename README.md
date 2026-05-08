@@ -7,3 +7,5 @@ w2i pls! :3 / thankuu!
 
 
 idk
+
+![](Untitled282_20260426024107.png)
